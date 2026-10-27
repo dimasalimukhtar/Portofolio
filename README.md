@@ -67,8 +67,8 @@ Supervisor Pembangunan dan Pemasangan Pemanfaatan Tegangan Rendah — Qualificat
 
 ## Contact
 
-- LinkedIn: [Add your LinkedIn profile URL]
-- Email: [Add your professional email address]
+- LinkedIn: www.linkedin.com/in/dimasalimukhtar
+- Email: dimasalimukhtar.pro@gmail.com
 
 ---
 
